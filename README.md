@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hi, I'm Prashant:
 🎓 I'm currently in my 3rd year of B.Tech, exploring the world of technology and development.<br>💻 I enjoy solving coding problems just for fun and to sharpen my skills.<br>🚀 Always eager to learn new concepts and improve every day!<br>
 
 
